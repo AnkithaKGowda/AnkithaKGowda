@@ -1,5 +1,5 @@
 # 💫 About Me:
-Second year engineering student with a passion for dancing, always looking for new challenges to grow & explore new things.
+Third year engineering student with a passion for dancing, always looking for new challenges to grow & explore new things.
 
 
 # 💻 Tech Stack:
